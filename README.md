@@ -1,8 +1,6 @@
-<div align="center">
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [deco tree](https://colormytree.me/2025/01JEJZ6NQWQG6XA39810M5Y2SK)
+ 
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[oldstylestuff](https://rentry.co/aboutmyoldstyle) 
+  ㅤㅤㅤㅤ[oomfiees!](https://rentry.co/dvmx56sh) [ata](https://adoare.atabook.org/)
 
-![](https://komarev.com/ghpvc/?username=AD0KOU&color=b54e60&base=1000&label=adored)
-
- [𝚊𝚝𝚊](https://adoare.atabook.org/)
-    -  [𝚘𝚕𝚍𝚜𝚝𝚢𝚕𝚎](https://rentry.co/aboutmyoldstyle) 
-
-![Image](https://github.com/user-attachments/assets/24e8de6e-efd7-46ce-a5a8-14d644df51a4)
+<img width="520" height="480" alt="Image" src="https://github.com/user-attachments/assets/c0d2efa0-295b-4a70-922e-fe3bc40ab5b9" />
