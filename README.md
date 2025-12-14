@@ -4,4 +4,4 @@
   ㅤㅤㅤㅤ[oomfiees!](https://rentry.co/dvmx56sh) 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://adoare.atabook.org/)
 
-<img width="517" height="483" alt="Image" src="https://github.com/user-attachments/assets/15cfd5ca-e45b-45aa-883b-52976647b063" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/72d12683-2f4b-4ba9-a285-062137227957" />
