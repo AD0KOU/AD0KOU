@@ -7,4 +7,4 @@
   ㅤㅤㅤㅤ[oomfiees!](https://rentry.co/dvmx56sh) 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ㅤ⠀⠀ㅤ⠀⠀ㅤㅤ[ata](https://adoare.atabook.org/)
 
-![Image](https://github.com/user-attachments/assets/38190049-cb08-40a3-9b97-d628925f13cf)
+
