@@ -1,4 +1,4 @@
-<img width="555" height="450" alt="Image" src="https://github.com/user-attachments/assets/36f801b1-d655-4842-9b9e-bd2ae722629a" />
+![Image](https://github.com/user-attachments/assets/9fda4f08-fdc3-46a1-a319-f0515ab52575)
 
 
 ㅤㅤ[rentry](https://rentry.co/odyyseyduo)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [deco tree](https://colormytree.me/2025/01JEJZ6NQWQG6XA39810M5Y2SK)
