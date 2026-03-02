@@ -1,3 +1,3 @@
 <div align="center">
 
-<img width="503" height="496" alt="Image" src="https://github.com/user-attachments/assets/19d27991-e281-4505-b5a2-8357ce93652e" />)
+<img width="503" height="496" alt="Image" src="https://github.com/user-attachments/assets/cf3366d1-3808-48d7-855e-71072da62e7e" />
