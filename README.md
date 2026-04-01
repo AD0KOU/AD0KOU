@@ -1,3 +1,3 @@
 <div align="center">
   
-![Image](https://github.com/user-attachments/assets/03f7cdf1-d248-4759-9860-11209a4932cd)
+![Image](https://i.pinimg.com/736x/86/8a/58/868a58606c6169d36a031d76e0a9975c.jpg)
