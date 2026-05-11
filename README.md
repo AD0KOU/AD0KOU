@@ -1,8 +1,6 @@
 <div align="center">
 
-<img width="2963" height="512" alt="Image" src="https://i.pinimg.com/originals/82/4d/b1/824db152cde0fe8c3654c209a126882c.gif" /> 
-
-[<img width="2000" height="560" alt="Image" src="https://github.com/user-attachments/assets/9bccdc21-5d86-4d8a-a72d-c90b73ffd649" />](https://rentry.co/denjkint)
+<img width="2963" height="1582" alt="Image" src="https://files.catbox.moe/998j7s.png" /> 
 
 [<img width="2000" height="670" alt="Image" src="https://github.com/user-attachments/assets/a87ebf77-fea6-43e2-97dd-dc9ca83d24b9" />](https://rentry.co/lovelyoomfies)
   
