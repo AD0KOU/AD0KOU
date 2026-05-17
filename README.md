@@ -1,5 +1,5 @@
 <div align="center">
 
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/e5aeb7b8-5a82-4ab2-b6fc-0044ab9868bd" />
+<img width="595" height="419" alt="Image" src="https://github.com/user-attachments/assets/536db26b-7b28-447f-aec7-f437f29aa09c" />
 
-![](https://komarev.com/ghpvc/?username=purefatal&color=cfdbe1&base=1000&label=adored)
+![](https://komarev.com/ghpvc/?username=purefatal&color=fa8892&base=1000&label=adored)
