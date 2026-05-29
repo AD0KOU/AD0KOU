@@ -4,4 +4,6 @@
 
 <img width="528" height="473" alt="Image" src="https://github.com/user-attachments/assets/30a0aabb-e620-4f34-bdeb-43b9cb1f85cb" />
 
+@kuni @kafu @rose
+
 [.](https://rentry.co/67iguess)
